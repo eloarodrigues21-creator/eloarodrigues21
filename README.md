@@ -1,0 +1,12 @@
+Olá!!
+_ 👩🏻‍🎓​Sou estudante.
+_ ​📚​Gosto de anime.
+_ ​🖤​Amo ler BLS.
+_​​🥢​Gosto da cultura japonesa.
+_​​​ 🎮​Gosto de Resident Evil Requiem.
+_​​​ 🎭​Gosto de Slly Face.
+_​​​ 💜​Gosto de roxo.
+_​​​ 🥡​Amo Tteokbokki.
+_​​​ 💬​Gosto de mangá.
+
+![](https://media1.tenor.com/m/krkKsK6NiT4AAAAC/hmm-let-me-think-about-it.gif) 
